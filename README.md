@@ -1,3 +1,3 @@
-# Business-Analyst-Toolkit
-Click here to access Businjess Analysis toolkit
+# Business-Analysis-Toolkit
+Click here to access Business Analysis toolkit
 https://tinyurl.com/msuferv9 
